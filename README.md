@@ -1,0 +1,1 @@
+# karapatang-pantao-10-mabini.com
